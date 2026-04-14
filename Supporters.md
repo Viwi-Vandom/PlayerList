@@ -1,5 +1,4 @@
 TIER 1:
 
 iffn
-Vimma
-Shіna
+Vimma Yo
