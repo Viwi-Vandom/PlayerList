@@ -1,4 +1,3 @@
-Supporters
+TIER 1:
 
-:Tier 1:
 iffn
